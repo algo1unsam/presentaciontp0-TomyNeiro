@@ -1,6 +1,3 @@
-
-
-
 ## Estudiante: Tomás Neiro
 
 tengo 23 años, me gusta el tenis, tomar mates y soy una persona asquerosamente puntual. Soy tecnico en informatica recibido del secundario  
